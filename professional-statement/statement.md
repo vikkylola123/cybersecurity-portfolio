@@ -1,0 +1,2 @@
+# Professional Statement
+As a cybersecurity professional skilled in programming, time management, and continuous learning, I am driven by a commitment to protect people and organizations with integrity. My fascination with the intricate process of safeguarding personal data inspires my dedication to this field. By addressing complex security challenges and enhancing data protection measures, I look forward to contributing my strengths and values to your team.
